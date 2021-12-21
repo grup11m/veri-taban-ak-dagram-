@@ -1,0 +1,1 @@
+# veri-taban-ak-dagram-
